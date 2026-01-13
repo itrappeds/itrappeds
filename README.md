@@ -8,7 +8,7 @@
 
 <p align="center"
 
-*no words...lol?? uhmm please sign my atabook. im currently interested in forsaken and daybreak2 i guess.*
+*no words...lol?? uhmm please sign my atabook. im currently interested in forsaken and daybreak2 i guess. Im socially awkward but am welcoming to those who want to cuddle/hide behind me im very friendly :), I dont play forsalen and refuse too sorry but im a daybreak2 sweat if i'm considered so.... coughs in level 2k smth...*
 
 <p align="center"
 

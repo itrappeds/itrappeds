@@ -8,7 +8,7 @@
 
 <p align="center"
 
-*no words...lol?? uhmm please sign my atabook. im currently interested in forsaken, daybreak2, mm12 i guess. Im socially awkward but am welcoming to those who want to cuddle/hide behind me im very friendly :), I dont play forsaken and refuse too sorry but im a daybreak2 sweat if i'm considered so.... coughs in level 2k smth... yes my readme and profile is gonna be mismatched y not.*
+*no words...lol?? uhmm please sign my atabook. im currently interested in forsaken, daybreak2, mm12 and tpc i guess. Im socially awkward but am welcoming to those who want to cuddle/hide behind me im very friendly :), I dont play forsaken and refuse too sorry but im a daybreak2 sweat if i'm considered so.... coughs in level 2k smth... yes my readme and profile is gonna be mismatched y not.*
 
 <p align="center"
 
